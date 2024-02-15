@@ -1,2 +1,2 @@
-Dier Hou MSCS Student
+Dier Hou MSCS Student @ UCSD
 deerhde@gmail.com San Diego, CA
